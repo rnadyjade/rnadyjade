@@ -4,7 +4,7 @@
 </div>
 <div align="center" dir="auto">
   <div><b>randy</b>　itノ <ins>he</ins>ノshe 　15</div>
-  <div>ENG    <img src="https://64.media.tumblr.com/4d48def1d705a4f72b5bd1279306917b/1fd10d3a7bc0c3bb-15/s75x75_c1/a33751002cca259c6c45e69e94811687cd89412c.pnj" alt="transgender">   BST time</div>
+  <div>ENG    <img src="https://64.media.tumblr.com/4d48def1d705a4f72b5bd1279306917b/1fd10d3a7bc0c3bb-15/s75x75_c1/a33751002cca259c6c45e69e94811687cd89412c.pnj" alt="transgender">   transfag</div>
   <div>୨ৎ    i like to beat <a href="https://github.com/kianffy" rel="https://github.com/kianffy">raccy</a> <3 </div>
 </p>
 
