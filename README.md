@@ -19,5 +19,4 @@
 
   </div>
 </article>
-  </div> <div align="center">
-  <div> woof woof
+
