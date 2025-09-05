@@ -9,7 +9,7 @@
 </p>
 
 <p dir="auto"><a target="_blank" href="https://x.com/ALNST_t/"><img src="https://ianstuff.carrd.co/assets/images/image02.png?v=322fe4e7" alt="ART BY @ALNST_t ON TWITTER" style="max-width: 100%;"></a></p>
-<p dir="auto"><a href="https://nervousyoungfag.atabook.org/" rel="https://nervousyoungfag.atabook.org/">atabook</a> 　 <a href="https://davetrapped.straw.page/" rel="https://davetrapped.straw.page/">strawpage</a> 　 <a href="https://rentry.co/madboys" rel="https://rentry.co/madboys">rentry</a></p>
+<p dir="auto"><a href="https://nervousyoungfag.atabook.org/" rel="https://nervousyoungfag.atabook.org/">atabook</a> 　 <a href="https://davetrapped.straw.page/" rel="https://davetrapped.straw.page/">strawpage</a> 　 <a href="https://rentry.co" rel="https://rentry.co">rentry</a></p>
 
 <div style="display: flex; gap: 20px; align-items: flex-start;">
   <img src="https://64.media.tumblr.com/c3ff7ac3d35820960e7a58840cef415e/adf79bd8a54b3422-11/s250x400/00c28b96960f15cb92d5f9172a1955d1c3cfe5a5.pnj" alt="stamp" style="max-width: 100%;">
